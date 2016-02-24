@@ -1,7 +1,8 @@
-# Song: Hand to Hold
-* Artist: Shaun Mouton
-* Author: Shaun Mouton
-*****
+# Song: Hand to Hold  
+* Artist: Shaun Mouton  
+* Author: Shaun Mouton  
+
+---  
 
 *Intro*  
 G C  

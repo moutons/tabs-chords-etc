@@ -1,7 +1,8 @@
-# Song: Lying Tree
-* Artist: Shaun Mouton
-* Author: Shaun Mouton
-*****
+# Song: Lying Tree  
+* Artist: Shaun Mouton  
+* Author: Shaun Mouton  
+
+---  
 
 *Intro*  
 

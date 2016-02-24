@@ -1,9 +1,9 @@
-# Song: Lubbock or leave it
-* Artist: Shaun Mouton
-* Author: Shaun Mouton
+# Song: Lubbock or leave it  
+* Artist: Shaun Mouton  
+* Author: Shaun Mouton  
 
----
-*note: I wrote the song in 2000 and don't recall the words exactly*
+---  
+*note: I wrote the song in 2000 and don't recall the words exactly*  
 
 In the year of nineteen ninety-eight an uncle came to me  
 Telling tales of cousins and a car to drive and a job waiting for me  

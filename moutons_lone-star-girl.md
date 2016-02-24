@@ -1,7 +1,8 @@
-# Song: Lone Star Girl
-* Artist: Shaun Mouton
-* Author: Shaun Mouton
-*****
+# Song: Lone Star Girl  
+* Artist: Shaun Mouton  
+* Author: Shaun Mouton  
+
+---  
 
 *Intro*
 

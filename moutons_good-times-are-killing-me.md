@@ -1,7 +1,8 @@
-# Song: Good times are killing me
-* Artist: Shaun Mouton
-* Author: Shaun Mouton
-*****
+# Song: Good times are killing me  
+* Artist: Shaun Mouton  
+* Author: Shaun Mouton  
+
+---  
 
 Whoa, mama  
 These good times are killing me  
