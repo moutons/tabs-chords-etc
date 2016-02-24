@@ -2,7 +2,7 @@
 * Artist: Kevin Bowe & the Okemah Prophets  
 * Author: Kevin Bowe  
 * Chords transcribed from [a Three Dog Night performance of the song](https://www.youtube.com/watch?v=w8Ar5PRSG9Y) by S. Mouton  
-*****
+*****  
 
 *Intro*  
 Em G D Am  
