@@ -18,20 +18,30 @@ Your focus on things immature I took as signs of a young mind
 The way you interrupted I took as having things to say  
 I wish I could have seen you then with the eyes I have today  
 
-
-You're a hard act to follow  
+         F    C      G
+You're a hard act to follow
+  F    G         C
 I know someday I will  
+       F      C        G
 Find a way to fill the hollow  
+    F         G        C
 Til then I'll drink my fill  
 
+C                             C              F
 I seem to have left my good decisions at the door  
+                                       G
 I'd go right out and get them but if I did I'd seem a bore  
+      C                        F           C             Am
 As it is I can just enjoy this quiet conversation & if I left I'm sure that  
+G         G/B   C
 You would not return  
 
 *Chorus*  
-You're a Lone Star girl  
+         F    C    G
+You're a Lone Star girl
+     F    C       G
 All alone in this world  
+    F            C       G               C
 & I know I'll be getting back to you someday  
 
 
